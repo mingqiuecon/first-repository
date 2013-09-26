@@ -1,6 +1,6 @@
 Mountains in the UK
 =========================
 England is not very mountainous.
-But haste
+But has some hills
 
  
